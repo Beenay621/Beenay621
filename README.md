@@ -1,5 +1,4 @@
 - 👋 Hi, I’m @Beenay621
-- 👀 I’m interested in epidemiology, virology, biology, financial markets, computers, premier league football, mountaineering, scuba diving, bourbon
 - 💞️ I’m looking to collaborate on scientific research or just about anything that sounds interesting
 - 📫 How to reach me : email via beenay621@yahoo.com
 <!---
